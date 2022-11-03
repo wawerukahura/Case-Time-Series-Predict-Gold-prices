@@ -12,7 +12,7 @@ Problem statement
 
 Many investors buy gold as a safe haven to protect themselves against a possible catastrophe, profit from these tremendous increases in the price of gold, diversify their portfolio and protect themselves against inflation.
 
-With recent fears of an economic recession looming in the distance, investors are looking to recession-proof their portfolios. Gold has historically been touted as an asset that booms in a recession because unlike fiat currencies such as the Dollar, Yen and the Pound, it has inherent value as a commodity currency.
+With recent fears of an economic recession looming in the distance, investors are looking to recession-proof their portfolios. Gold has historically been touted as an asset that booms in a recession because unlike fiat currencies such as the Dollar, kenyan shilling and Indian rupee, it has inherent value as a commodity currency.
 
 However, with the rapidly changing economic landscape, does this still hold true? Is gold a good commodity to buy now for later profits?
 
